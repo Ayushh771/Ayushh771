@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ayushh771
+- 👋 Hi, I’m @Riddhesh739
 - 👀 I’m interested in coding & had just began 
 - 🌱 I’m currently learning C and Python language, I also learned HTML & CSS 
 - 📫 How to reach me - 7397952501 | riddheshrandive04@gmail.com
